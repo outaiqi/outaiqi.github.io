@@ -1,2 +1,1 @@
-# [outaiqi.github.io](https://hoo.be/htytspw
-)
+# [outaiqi.github.io](https://hoo.be/htytspw)
